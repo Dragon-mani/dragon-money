@@ -42,7 +42,7 @@
 
 | Международная альтернатива |
 |---|
-| [laki.world](https://laki.world) |
+| [dragon money](https://t.me/dragonmaneyru) |
 
 
 ## Регистрация и личный кабинет
